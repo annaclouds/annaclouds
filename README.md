@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @annaclouds
-- 👀 I’m interested in photography, videography, being with nature, and eating.
-- 🌱 I’m currently learning how to be a software engineer!
+- 👀 I’m interested in all things creative and projective.
+- 🌱 I’m currently learning how to be more technical.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: apham.cloud@gmail.com
 
